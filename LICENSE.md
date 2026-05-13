@@ -1,4 +1,4 @@
-# 
+# Get the ultimate liquidity sniper bot with custom Bot for liquidity sniper bot | new-token-detection & low-cap-gem-detection. Featuring new-token-detection and
 
 
 
